@@ -1,7 +1,7 @@
 -  👋 Quem sou? Franprof - FRANCINILDA F. REIS
--  Neste momento este GITHUB é para 👀 econferir as atividades dos alunos dos primeiros anos.
+-  Neste momento este GITHUB é para 👀 e conferir as atividades dos alunos dos primeiros anos.
 -.. Meu ❤️ enche de alegria a cada postagem destes.
-... O ⏳ esta passando, o 🔔 badala indicando final de ciclo.
+... O ⏳ está passando, o 🔔 badala indicando final de ciclo.
 . Não quero passar o 🎄 corrigindo atividades.
 
 
