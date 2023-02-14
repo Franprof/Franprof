@@ -1,6 +1,23 @@
 -  👋 Quem sou? Franprof 
 
 
+BEM VINDO AO ANO LETIVO DE 2023.
+
+Acredite, você pode tudo
+
+Se nada mudar, invente,
+e quando mudar, entenda.
+Se ficar difícil, enfrente,
+e quando ficar fácil, agradeça.
+Se a tristeza rondar, alegre-se,
+e quando ficar alegre, contagie.
+E quando recomeçar, acredite.
+Você pode tudo.
+Tudo consegue pelo amor,
+e pela fé que você tem em Deus!
+Com carinho 
+Prof= FRAN
+
 -  Neste momento este GITHUB é para 👀 e conferir as atividades dos alunos dos primeiros anos.
 
 .. Meu ❤️ enche de alegria a cada conclusão de atividades destes.
